@@ -4,6 +4,8 @@ Die Liste wird kontinuierliche aktualisiert.
 
 Wenn ihr Vorschläge und Beiträge ergänzen wollt, klont das repository und erstellt einen Pull request.
 
+Hinweis: Wenn ihr konkret nach Dingen sucht wie zum Beispiel "Beratung", drückt einfach auf eurer Tastatur "strg + F" und sucht nach "Beratung".
+
 ## Informations- und Beratungsangebote
 **[dgti e.V.](https://dgti.org/)**
 - Beratung
