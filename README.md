@@ -55,6 +55,10 @@ Hinweis: Wenn ihr konkret nach Dingen sucht wie zum Beispiel "Beratung", drückt
 - Beratungen
 - Informationsportal
 
+**[Queeres Netzwerk Bayern](https://queeresnetzwerk.bayern/)**
+- Informationsportal
+- Beratungen
+
 ## Shops
 **[UNTAG](https://untag.com/de-de)**
 - Binder, Packing-Unterwäsche, Tucking-Unterwäsche, Bademode
