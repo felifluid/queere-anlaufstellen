@@ -73,6 +73,10 @@ Hinweis: Wenn ihr konkret nach Dingen sucht wie zum Beispiel "Beratung", drückt
 - Sex / Kink, Geschlechtsausdruck (Binder, Packing, Tucking, Bademode), Bücher und mehr
 - Versand aus Berlin (auch Besuch vor Ort möglich)
 
+**[Atelier Odenoir](https://www.atelier-odenoir.com/de/)**
+- Geschlechtsneutrale Designermode
+- Versand aus Berlin
+
 **[GenderBender](https://genderbenderllc.com)**
 - Geschlechtsausdruck (Binder, Packing, Tucking, Bademode), Alltagsmode, Kink
 - Versand aus den USA
